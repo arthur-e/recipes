@@ -8,7 +8,7 @@
 - 1 tbsp. Ginger
 - 1 tsp. Sesame oil
 - 1 tsp. Honey, maybe more
-- 1 tsp. Salt
+- Pinch of salt
 
 ## Preparation
 
